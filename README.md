@@ -8,6 +8,5 @@ I’m also pretty comfortable with my friends, so if you want to chat (or yap) w
                                                  
 [ATAB00K](https://fabyungke.atabook.org/)
 
-<p align="center">
-  <img src="https://getloli.com" alt="Views" />
-</p>
+
+![𝄞⨾𓍢ִ໋](https://getloli.com)
