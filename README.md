@@ -7,3 +7,7 @@ I’m also pretty comfortable with my friends, so if you want to chat (or yap) w
                                                  𝙷𝙰𝚅𝙴 𝙰 𝙽𝙸𝙲𝙴 𝙳𝙰𝚈 :𝟹𝟹
                                                  
 [ATAB00K](https://fabyungke.atabook.org/)
+
+<p align="center">
+  <img src="https://getloli.com" alt="Views" />
+</p>
