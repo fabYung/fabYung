@@ -9,4 +9,4 @@ I’m also pretty comfortable with my friends, so if you want to chat (or yap) w
 [ATAB00K](https://fabyungke.atabook.org/)
 
 
-![𝄞⨾𓍢ִ໋](https://getloli.com)
+[𝄞⨾𓍢ִ໋](https://getloli.com)
