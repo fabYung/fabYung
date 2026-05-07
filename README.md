@@ -11,4 +11,3 @@ I’m also pretty comfortable with my friends, so if you want to chat (or yap) w
 
 [𝄞⨾𓍢ִ໋pet cung cua tui](https://github.com/yav4rus)
 
-![fabYung](https://getloli.com)
