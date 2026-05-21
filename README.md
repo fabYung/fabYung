@@ -1,14 +1,18 @@
-<img width="1198" height="1363" alt="image" src="https://github.com/user-attachments/assets/8be80404-5fc1-48e2-83d9-cb3c7ab6302c" />
-
+<p align="center">
+  <img 
+    width="540" 
+    height="304" 
+    alt="Post by @noisylovepatrol · 3 images" 
+    src="https://github.com/user-attachments/assets/8283c9b4-6858-472d-a172-3faa27f5f206" 
+  />
+</p>
 
 𝚑𝚒 𝚐𝚞𝚢𝚜
 
-I have a few things I’d like to share about myself. I’m quite a sensitive person, so if you want to talk or joke around with me, please be mindful of the things you say. I might not take it to heart at first, but please don’t assume I’m completely comfortable and keep pushing the boundaries.
+`𝙸’𝚍 𝚕𝚒𝚔𝚎 𝚝𝚘 𝚜𝚑𝚊𝚛𝚎 𝚊 𝚕𝚒𝚝𝚝𝚕𝚎 𝚊𝚋𝚘𝚞𝚝 𝚖𝚢𝚜𝚎𝚕𝚏. 𝙸’𝚖 𝚊 𝚙𝚛𝚎𝚝𝚝𝚢 𝚜𝚎𝚗𝚜𝚒𝚝𝚒𝚟𝚎 𝚙𝚎𝚛𝚜𝚘𝚗, 𝚜𝚘 𝚒𝚏 𝚠𝚎 𝚝𝚊𝚕𝚔 𝚘𝚛 𝚓𝚘𝚔𝚎 𝚊𝚛𝚘𝚞𝚗𝚍, 𝚙𝚕𝚎𝚊𝚜𝚎 𝚋𝚎 𝚖𝚒𝚗𝚍𝚏𝚞𝚕 𝚘𝚏 𝚢𝚘𝚞𝚛 𝚠𝚘𝚛𝚍𝚜. 𝙴𝚟𝚎𝚗 𝚒𝚏 𝙸 𝚍𝚘𝚗’𝚝 𝚛𝚎𝚊𝚌𝚝 𝚛𝚒𝚐𝚑𝚝 𝚊𝚠𝚊𝚢, 𝚒𝚝 𝚍𝚘𝚎𝚜𝚗’𝚝 𝚊𝚕𝚠𝚊𝚢𝚜 𝚖𝚎𝚊𝚗 𝙸’𝚖 𝚏𝚞𝚕𝚕𝚢 𝚌𝚘𝚖𝚏𝚘𝚛𝚝𝚊𝚋𝚕𝚎, 𝚜𝚘 𝚙𝚕𝚎𝚊𝚜𝚎 𝚍𝚘𝚗’𝚝 𝚔𝚎𝚎𝚙 𝚙𝚞𝚜𝚑𝚒𝚗𝚐 𝚝𝚑𝚎 𝚕𝚒𝚖𝚒𝚝𝚜.`
 
-I’m also pretty comfortable with my friends, so if you want to chat (or yap) with me, feel free to whisper me. And I love my friends >.<
-                                                 𝙷𝙰𝚅𝙴 𝙰 𝙽𝙸𝙲𝙴 𝙳𝙰𝚈 :𝟹𝟹
-                                                 
-[ATAB00K](https://fabyungke.atabook.org/)
-
-
-[𝄞⨾𓍢ִ໋pet cung cua tui](https://github.com/yav4rus)
+`𝙸’𝚖 𝚊𝚕𝚜𝚘 𝚙𝚛𝚎𝚝𝚝𝚢 𝚌𝚘𝚖𝚏𝚘𝚛𝚝𝚊𝚋𝚕𝚎 𝚠𝚒𝚝𝚑 𝚖𝚢 𝚏𝚛𝚒𝚎𝚗𝚍𝚜, 𝚜𝚘 𝚒𝚏 𝚢𝚘𝚞 𝚠𝚊𝚗𝚝 𝚝𝚘 𝚌𝚑𝚊𝚝 (𝚘𝚛 𝚢𝚊𝚙) 𝚠𝚒𝚝𝚑 𝚖𝚎, 𝚏𝚎𝚎𝚕 𝚏𝚛𝚎𝚎 𝚝𝚘 𝚠𝚑𝚒𝚜𝚙𝚎𝚛 𝚖𝚎. 𝙰𝚗𝚍 𝙸 𝚕𝚘𝚟𝚎 𝚖𝚢 𝚏𝚛𝚒𝚎𝚗𝚍𝚜 >.<`
+`           
+<p align="center">
+  𝙷𝙰𝚅𝙴 𝙰 𝙽𝙸𝙲𝙴 𝙳𝙰𝚈 :𝟹𝟹
+</p>                                                 
