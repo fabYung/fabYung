@@ -13,6 +13,7 @@
 
 
 `𝚒𝚖 𝚊𝚕𝚜𝚘 𝚙𝚛𝚎𝚝𝚝𝚢 𝚌𝚘𝚖𝚏𝚘𝚛𝚝𝚊𝚋𝚕𝚎 𝚠 𝚖𝚢 𝚏𝚛𝚗𝚍𝚜, 𝚜𝚘 𝚒𝚏 𝚞 𝚠𝚊𝚗𝚝 𝚝𝚘 𝚌𝚑𝚊𝚝 (𝚘𝚛 𝚢𝚊𝚙) 𝚠 𝚖𝚎, 𝚏𝚎𝚎𝚕 𝚏𝚛𝚎𝚎 𝚝𝚘 𝚠𝚑𝚒𝚜𝚙𝚎𝚛 𝚖𝚎. 𝙰𝚗𝚍 𝚒 𝚕𝚞𝚟 𝚖𝚢 𝚏𝚛𝚒𝚎𝚗𝚍𝚜 >.<``           
+
 <p align="center">
-  𝙷𝙰𝚅𝙴 𝙰 𝙽𝙸𝙲𝙴 𝙳𝙰𝚈 :𝟹𝟹
-</p>                                                 
+  <img src="https://readme-typing-svg.demolab.com?font=Space+Mono&size=26&pause=1000&color=1B4F93&center=true&vCenter=true&width=600&lines=have+a+nice+day!!" />
+</p>
